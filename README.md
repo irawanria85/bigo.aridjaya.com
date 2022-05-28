@@ -1,1 +1,2 @@
-# [bigo.aridjaya.com](bigo.aridjaya.com)
+# [bigolive](https://bigo.aridjaya.com)
+Streaming live online bigo girls
