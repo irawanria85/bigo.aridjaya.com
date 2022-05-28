@@ -1,1 +1,1 @@
-# bigo.aridjaya.com
+# [bigo.aridjaya.com](bigo.aridjaya.com)
