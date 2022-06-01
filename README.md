@@ -1,2 +1,1 @@
-# [bigolive](https://bigo.aridjaya.com)
-Streaming live online bigo girls
+# <a href="https://mamamudah.web.app/">@mamamudah</a>
